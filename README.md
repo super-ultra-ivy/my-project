@@ -13,7 +13,9 @@ There were two hens
 And... do you know what happened?
 
 ## Four
-...
+They went and had a nice drink at the strange dive bar.
 
 ## Five
-...
+The drink was actually not that nice. But - it was still fun.
+
+_The End_
