@@ -13,7 +13,7 @@ There were two hens
 And... do you know what happened?
 
 ## Four
-...
+The hens went dancing. They had a lot of fun.
 
 ## Five
-...
+And then, the went swimming!
