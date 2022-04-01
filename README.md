@@ -19,6 +19,3 @@ They went and had a nice drink at the strange dive bar.
 The drink was actually not that nice. But - it was still fun. And then, the went swimming! Even though that's against the rules... because they are bad hens!
 
 _The End_
-
-
-Join us next time for "The bad hens: 2"
